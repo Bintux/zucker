@@ -10,3 +10,6 @@
 + Steampunk Laptop - what if Laptops were invented 100 years ago?
   Guy comes into the office with a huge laptop , has to put in coal, and operate huge leavers to start programs
 
++ Instant drunk
+  Guy drinks tons of shots. waits for a bit and then it hits him 
+

@@ -13,3 +13,6 @@
 + Instant drunk
   Guy drinks tons of shots. waits for a bit and then it hits him 
 
++ Office timelapse
+  Put camera in office and film different timelapes - like what happens on the weekend (timelapse?) 
+
